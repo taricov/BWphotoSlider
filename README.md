@@ -1,1 +1,1 @@
-# taricov.github.io
+# http://taricov.github.io
