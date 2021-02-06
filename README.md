@@ -5,4 +5,4 @@ As I used to hold my camera around. I picked some photos that I wanted -as part 
 Here's if you'd like to go and have a look:
 # https://bit.ly/bw-slider
 
-*The slider could be slower than expected even they're only few photos due to the free-hosting hussles , I appreciate your patiance.
+*The slider could be slower than expected even they're only few photos due to the free-hosting hassles , I appreciate your patiance.
